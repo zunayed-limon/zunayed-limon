@@ -6,7 +6,7 @@ Hello, I’m **Limon**, I have a strong passion for learning & implementing new 
 ***
 
 ## 📩 Contact Me
-Want to connect? Shoot me an *email* at zahmedlimon@gmail.com or check out my website/portfolio/blog. Let's chat about how we can make something awesome together.
+Want to connect? Shoot me an *email* at zahmedlimon@gmail.com or check out my https://zunayed-limon.com. Let's chat about how we can make something awesome together.
 ***
 
 ## 🚀 Let's Make It Happen
